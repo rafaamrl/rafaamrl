@@ -1,4 +1,4 @@
-### 👋 Hi, I'm Rafa!
+### 👋 Hi, I'm Rafael Amaral!
 
 ---
 
